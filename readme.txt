@@ -1,0 +1,1 @@
+Just opened a new folder for a new project
